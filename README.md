@@ -1,4 +1,4 @@
-## Oiii eu sou o Couty, criadora de conteúdo e web e programas!
+## Oiii eu sou o Couty, criador de conteúdo e web e programas!
 
 Pessoal 
 
